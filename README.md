@@ -1,2 +1,0 @@
-# Portfolio_Practice_Projects_From_Codehal
-Practicing_Portfolio_Projects_From_Codehal_On_Youtube.
